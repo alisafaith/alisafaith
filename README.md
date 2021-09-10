@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @alisafaith
+- 👀 I’m interested in graphic design and educational technology
+- 🌱 I’m currently learning educational technology
+- 💞️ I’m looking to collaborate on designing
+- 📫 please send me an email if you want to reach me
